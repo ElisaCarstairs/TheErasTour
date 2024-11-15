@@ -26,9 +26,7 @@ El video al especial de Disney plus del concierto
 
 Las próximas fechas consideradas del Eras Tour
 
-Enlaces a sus álbumes más completos,
-
-Merch
+Enlaces 
 
 ## Autor
 
